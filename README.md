@@ -1,0 +1,1 @@
+# 10-sinif-tarih-moduler-soru-bankasi-32
